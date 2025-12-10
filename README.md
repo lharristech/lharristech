@@ -1,5 +1,5 @@
-## Hi there my name is Lakesha 👋
-<h1>Hi, I'm Lakesha, 
+## Hi there my name is Lakesha, a new IT Professional 👋
+
 
 <h2>👨‍💻 Information Technology Projects:</h2>
 
